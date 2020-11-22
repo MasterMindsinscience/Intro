@@ -1,4 +1,5 @@
 # MasterMinds in Science
+# By Yaashvi , Sreeya and Renita
 
 This is an intro to the Channel MasterMinds in Science by Yaashvi , Sreeya and Renita , We are freinds and we study in the sam class and grade 6A.
 
