@@ -9,3 +9,7 @@ In this channel we will past nice videos on Science that will teach you Science 
  
  Please Like and Subscribe to our channel The MasterMinds in Science .
  
+ This is our Introduction Video :
+ 
+ https://youtu.be/GA3MC6VV37o
+ 
