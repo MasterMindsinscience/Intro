@@ -1,4 +1,5 @@
 # MasterMinds in Science
+
 # By Yaashvi , Sreeya and Renita
 
 This is an intro to the Channel MasterMinds in Science by Yaashvi , Sreeya and Renita , We are friends and we study in the same class .
@@ -11,5 +12,7 @@ This is our Introduction Video :
 
 https://youtu.be/GA3MC6VV37o
 
+Our next video will be published after the date : 4/12/2020
+
 Please Like and Subscribe to our channel The MasterMinds in Science .
-https://github.githubassets.com/images/icons/emoji/octocat.png
+
