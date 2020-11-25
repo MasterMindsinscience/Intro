@@ -20,13 +20,15 @@ Please Like and Subscribe to our channel The MasterMinds in Science .
 
 Thankyou so much Everyone
 
+whoever has seen this website ,
+
+seen our video ,
+
+and liked and subscribed to the channel
+
+Our next website will be posted after 4/12/2020
+
 This website is made by :
 
-Sreeya 
-
-Yaashvi 
-
-&
-
-Renita
+Sreeya , Yaashvi & Renita
 
